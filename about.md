@@ -21,4 +21,5 @@ I have been part of FBLA for a year. Getting into this club was difficult becaus
 Spanish Honors Society (SHS):
  have been in SHS for two years. In my first year in SHS I participated in a variety of events. For instance, I donated to the mustard seed drive. Additionally, I sold items such as food and tickets for holidays. In my second year, things were a bit different because it was virtual. I was able to donate to the mustard seed drive again. Additionally, I participated in a jeopardy event related to spanish culture. I drew a picture for Dia de Los Muertos as well.
 
+![Spanish-National-Honor-Society](https://user-images.githubusercontent.com/65611036/121820521-3b141d00-cc61-11eb-9e95-96ef262a148e.png)
 
