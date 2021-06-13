@@ -11,6 +11,8 @@ title: Brag Sheet
 Geek League:
 I have been volunteering at the EBPL for about 3 years. I volunteer in a program called Geek League. In Geek League I help out senior citizens with their technology issues. This year we couldn't help patrons in person due to the pandemic and we can't do this virtually because the patrons would probably have issues with Zoom. But, we instead made videos about apps and posted them on the library's website for people to view. 
 
+
+
 Future Business Leaders of America (FBLA):
 I have been part of FBLA for a year. Getting into this club was difficult because tryouts are competitive. To get into FBLA I presented a presentation about the NBA's plan for the 2020-2021 season. FBLA was different this year because it was all virtual. In FBLA, I competed in the coffee shop game event twice and placed in the top 5 both times. Additionally, I competed in a states event in which I had to make a public service announcement about vaping.
 
