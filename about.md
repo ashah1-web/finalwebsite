@@ -3,10 +3,10 @@ layout: page
 title: Brag Sheet
 ---
 
-3 Things:
+3 Things I am Proud Of:
 - Geek League
--  Future Business Leaders of America (FBLA)
--  Spanish Honors Society (SHS)
+- Future Business Leaders of America (FBLA)
+- Spanish Honors Society (SHS)
 
 Geek League:
 I have been volunteering at the EBPL for about 3 years. I volunteer in a program called Geek League. In Geek League I help out senior citizens with their technology issues. This year we couldn't help patrons in person due to the pandemic and we can't do this virtually because the patrons would probably have issues with Zoom. But, we instead made videos about apps and posted them on the library's website for people to view. 
