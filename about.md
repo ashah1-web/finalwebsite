@@ -3,7 +3,7 @@ layout: page
 title: Brag Sheet
 ---
 
-3 Things I am Proud Of:
+3 Things I am Proud of Doing in High School:
 - Geek League
 - Future Business Leaders of America (FBLA)
 - Spanish Honors Society (SHS)
